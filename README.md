@@ -1,4 +1,4 @@
-# reynataweb3profiles
+# reynata web3 profiles
 - 0xreynata (1).jpg
 - 0xreynata (2).jpg
 - 0xreynata (3).jpg
